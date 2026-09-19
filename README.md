@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HECJ870704HDFRNN05
+HECJ870704HDFRNN05
